@@ -1,0 +1,2 @@
+# Nick
+Trading/Stock/Crypto
